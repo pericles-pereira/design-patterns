@@ -1,0 +1,10 @@
+[22/10/2023][info]: testandoLogManager
+[22/10/2023][info]: testandoLogManager
+[22/10/2023][info]: testandoLogManager
+[22/10/2023][info]: testandoLogManager
+[22/10/2023][info]: testandoLogManager
+[22/10/2023][info]: testandoLogManager
+[22/10/2023][info]: testandoLogManager
+[22/10/2023][info]: testandoLogManager
+[22/10/2023][info]: testandoLogManager
+[22/10/2023][info]: testandoLogManager
